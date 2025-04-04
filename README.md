@@ -1,2 +1,1 @@
-English lit grad shifting my attention to new languages.
-Self-taught programmer.
+English lit grad pivoting toward a different kind of language.
